@@ -2,7 +2,7 @@
 # 👋 Hi, I'm Ioannis Kossivakis  
 
 I am passionate about **Arduino, Robotics, IoT, and 3D Printing**.  
-For me, technology is a form of power — but how you choose to use it defines its true meaning.  
+For me, technology is a form of power.  
 
 ---
 
