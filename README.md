@@ -24,3 +24,5 @@ For me, technology is a form of power.
 ## 📫 Contact
 - GitHub: [github.com/IoannisKossivakis](https://github.com/IoannisKossivakis)  
 - Email: *(mikronetrino@gmail.com)*  
+[googlea3e3c145076ea1fd.html](https://github.com/user-attachments/files/21873686/googlea3e3c145076ea1fd.html)
+google-site-verification: googlea3e3c145076ea1fd.html
